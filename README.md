@@ -1,1 +1,0 @@
-# patrik.svobodik.github.io
